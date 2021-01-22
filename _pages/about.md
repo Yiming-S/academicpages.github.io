@@ -12,4 +12,4 @@ I’m currently a second year graduate student at the University of Massachusett
 
 
 I love my cat - “panda”.
-![Aaron Swartz](https://github.com/Yiming-S/yiming.github.io/blob/master/images/WechatIMG69.jpeg?raw=true)
+![Aaron Swartz](https://github.com/Yiming-S/yiming.github.io/blob/master/images/WechatIMG70.jpeg?raw=true)
